@@ -1,2 +1,2 @@
-Programming is exciting
+Programming is excitingly
 **IMPORTANT**
